@@ -758,6 +758,8 @@ heeft BIJ1 de volgende plannen:
     en het wordt eenvoudiger om grond te onteigenen.
     We zetten extra in op het bouwen van
     passende, betaalbare en goede woningen voor jongeren en ouderen.
+    Met een combinatie van bijbouwen en onteigenen van woningen van huisjesmelkers en leegstaande panden,
+    streven we naar een woningvoorraad met ten minste 50% sociale huur.
 
 1.  We zorgen voor voldoende betaalbare woningen voor jongeren, studenten en starters.
     Daarnaast komt er een nationale jeugdstrategie
