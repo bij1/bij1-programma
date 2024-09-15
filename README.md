@@ -2075,6 +2075,9 @@ strijdt BIJ1 onder meer voor de volgende punten:
     Er worden middelen vrijgemaakt voor trainingen aan onderwijsinstellingen
     over racisme, discriminatie en de doorwerking van kolonialisme.
     Daarnaast wordt het makkelijker voor scholieren en studenten om meldingen te maken van racisme en discriminatie.
+    Er komen diversiteitscommissies voor alle basis en middelbare onderwijsinstellingen in onze gemeente.
+    Deze commissies moeten zorgen voor diversiteitsquota in alle onderwijs- en bestuurslagen.
+    Er wordt proactief geworven op diversiteit voor leraren en de onderwijsbestuurslaag.
 
 1.  Bedrijven die discrimineren in hun selectie voor stagiairs worden beboet
     en uitgesloten van overheidsopdrachten en subsidies.
