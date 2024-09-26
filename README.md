@@ -1079,8 +1079,7 @@ BIJ1 strijdt daarom onder meer voor de volgende punten:
 
 1.  Nederland herstelt de schade van het slavernijverleden
     en de doorwerking daarvan in het heden.
-    De excuses voor de slavernij en het kolonialisme,
-    de invulling van het herstelproces en de uitkomsten
+    De invulling van het herstelproces en de uitkomsten
     worden juridisch bindend en vastgelegd in een
     consensusrijkswet Herstelmaatregelen.
     Deze reparaties zullen zowel materieel als immaterieel zijn,
