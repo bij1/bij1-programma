@@ -2041,6 +2041,11 @@ strijdt BIJ1 onder meer voor de volgende punten:
     bijvoorbeeld door drempels voor werkende mensen weg te nemen,
     en door schakelprogramma's.
 
+1.  Decentrale selectie voor de geneeskunde opleiding wordt afgeschaft.
+    Extra curriculaire activiteiten (welke moeilijk toegankelijk zijn voor velen)
+    zijn dan niet meer van invloed op de toelating tot de opleiding.
+    Door loten weer toe te voegen wordt de kansenongelijkheid aangepakt.
+
 ### Dekolonisatie en gelijke kansen
 
 1.  We zetten ons actief in om onderadvisering tegen te gaan.
