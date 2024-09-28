@@ -576,6 +576,13 @@ BIJ1 heeft hiervoor de volgende plannen:
     Daarom zetten we in op het verminderen van het autobezit
     door te investeren in openbaar vervoer en het stimuleren van flex- en thuiswerken.
 
+1.  Nadat we de strijd voor nul CO2-uitstoot hebben gewonnen,
+    is onze prioriteit om een koolstofvrij energienetwerk
+    in stand te houden met zo'n laag mogelijk grondstoffengebruik.
+    Hiermee laten we de behoefte aan mijnbouw dalen,
+    wat nu een grote aanslag doet op natuur en milieu,
+    en ook zorgt voor zware uitbuiting en daarmee klimaatimperialisme.
+
 ### Natuur en Vervoer
 
 1.  OV-bedrijven worden genationaliseerd.
